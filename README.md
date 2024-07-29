@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mishrayash2015@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18og7IJGeUlJtzGlGf5XL5H_xx5bK0ymF/view?usp=sharing](https://drive.google.com/file/d/18og7IJGeUlJtzGlGf5XL5H_xx5bK0ymF/view?usp=sharing)
+- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/18og7IJGeUlJtzGlGf5XL5H_xx5bK0ymF/view?usp=sharing](https://drive.google.com/file/d/1BMxoJz_qv1r0dyR4tu-7lEeTGLAAWYxM/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
